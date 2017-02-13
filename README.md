@@ -5,6 +5,6 @@ You are fill free to use this resource...If any code goes wrong please inform me
 
 ## Support or Contact
 
-  -Md. Mortuza Hossain 
-  -e-mail : mortuzahossain1997@gmail.com
-  -Bangladesh Army University Of Science And Techmology
+  - Md. Mortuza Hossain 
+  - e-mail : mortuzahossain1997@gmail.com
+  - Bangladesh Army University Of Science And Techmology
